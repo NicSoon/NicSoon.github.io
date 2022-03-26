@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+My journey into the world of IT.
 
-Maybe say a some things about yourself.
+A hospitality worker currently pursuing his new found passion for Information Technology.
 
-Or maybe what you plan to blog about.
+My current studies in IT at Tafe ST Leonard's.
